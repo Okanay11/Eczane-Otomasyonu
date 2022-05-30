@@ -1,1 +1,0 @@
-# Eczane-Otomasyonu
